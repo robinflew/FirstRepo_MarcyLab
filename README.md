@@ -12,3 +12,5 @@ projects in the future!
 - 📚 I enjoy reading self-development books.
 - ☕ I love working with tech.
 
+## Check This Out!
+![Visit my favorite website](https://csusmchronicle.com/wp-content/uploads/2024/09/1727280323433.png)
